@@ -1,2 +1,2 @@
 # usp
-up1 daka pravi promqna.
+up1 daka pravi promqna. jivi i zdravi .
